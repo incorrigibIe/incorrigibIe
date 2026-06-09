@@ -1,4 +1,4 @@
-<div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/image_2026-06-09_105637422.png" /></div>
+<div align="center"><img src="https://files.catbox.moe/5dbj6h.png" /></div>
 <div align="center">heavy cluster b traitsㅤsusp bpd+npd</div>
 <div align="center">antisocialㅤapatheticㅤiwvec or dni at all</div>
 ㅤ
